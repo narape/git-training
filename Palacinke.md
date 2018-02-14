@@ -1,4 +1,5 @@
 After all the holiday (over)eating, this is a great meal: nothing stewy and soupy, yet light and comforting.
+http://honestcooking.com/2012/01/12/learn-how-to-make-traditional-croatian-baked-strukli/img_1650/
 
 Strukli (also called Zagorje strukli, because the dish originates from the Zagorje region of Croatia) is a traditional Croatian dish. They are a Croatian brand and an example of how simplicity can be attractive. There are 2 types of strukli: boiled and baked. I like them baked. I add a bit of grated cheese on top (although it’s not used in the traditional recipe).
 Strukli are made of only a few ingredients. Ingredient that is most important is fresh cottage cheese: it has a fresh, slightly acidic taste and a refined taste of milk that is only really began to ferment.
