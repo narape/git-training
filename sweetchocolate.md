@@ -21,6 +21,6 @@
 ###  Steps
 1. Heat oven to 350°F. Spray bottom of 9-inch pie plate with cooking spray.
 2. In large bowl, mix cookie mix, softened butter and egg with spoon until soft dough forms. Stir in 3/4 cup of the chocolate candies and the 1/2 cup peanut butter chocolate candies. Press dough in bottom of pie plate. Sprinkle remaining 1/4 cup chocolate candies over top; lightly press into dough. Press heart-shaped candies lightly into dough.
-3. > Bake 28 to 30 minutes or until center is set and edges are golden brown. Cool completely on cooling rack, at least 2 hours, before cutting. Store tightly covered.
+3. Bake 28 to 30 minutes or until center is set and edges are golden brown. Cool completely on cooling rack, at least 2 hours, before cutting. Store tightly covered.
 
 #### © 2018 ®/TM General Mills All Rights Reserved
