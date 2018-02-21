@@ -4,11 +4,16 @@
 ##  Ingredients:
 
   * 100g plain flour
-  * 2 eggs
+  * 2 fresh eggs 
   * 300ml semi-skimmed milk
   * 1 tbsp sunflower oil or vegetable, plus extra for frying
-  * pinch salt 
-
+  * pinch salt x2
+  chockolate 
+  mineral water 
+  
+    
+   
+  
 ## Method
 
 |-------|
