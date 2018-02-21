@@ -4,12 +4,18 @@
 
   * 100g plain flour
   * 1 tsp vanillasoker
-  * 2 eggs
+  * 2 fresh eggs 
   * 300ml semi-skimmed milk
   * 1 tbsp sunflower oil or vegetable, plus extra for frying
   * pinch salt x3
-
+  * chockolate 
+  * mineral water 
+  
 ## Method
+
+|-------|
+|-------|
+|-------|
 
 Put the flour and a pinch of salt into a large mixing bowl. Make a well in the centre and crack the eggs into the middle. Pour in about 50ml milk and 1 tbsp oil. Start whisking from the centre, gradually drawing the flour into the eggs, milk and oil. Once all the flour is incorporated, beat until you have a smooth, thick paste. Add a little more milk if it is too stiff to beat.
 
