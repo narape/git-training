@@ -7,7 +7,7 @@
   * 2 eggs
   * 300ml semi-skimmed milk
   * 1 tbsp sunflower oil or vegetable, plus extra for frying
-  * pinch salt 
+  * pinch salt x3
 
 ## Method
 
