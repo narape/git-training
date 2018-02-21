@@ -1,6 +1,9 @@
 ![alt text](https://static.vix.com/es/sites/default/files/styles/large/public/imj/elgranchef/R/R%C3%A1pidos%20panqueques%20para%20veganos_1.jpg?itok=EB0blknA "Panqueques")
 
-# INGREDIENTS
+# INGREDIENts
+----------
+**********
+_____________
 * 1 1/2 cups self-raising flour
 * 1 teaspoon baking powder
 * 1/4 cup caster sugar
