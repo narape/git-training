@@ -1,4 +1,4 @@
-![alt text](http://www.imgoingbananas.com/wp-content/uploads/2014/11/Quesillo-Slice1.jpg "Quesillo")
+![alt text](https://static.vix.com/es/sites/default/files/styles/large/public/imj/elgranchef/R/R%C3%A1pidos%20panqueques%20para%20veganos_1.jpg?itok=EB0blknA "Panqueques")
 
 # INGREDIENTS
 * 1 1/2 cups self-raising flour
