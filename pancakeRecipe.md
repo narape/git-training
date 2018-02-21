@@ -11,6 +11,10 @@
 
 ## Method
 
+|-------|
+|-------|
+|-------|
+
 Put the flour and a pinch of salt into a large mixing bowl. Make a well in the centre and crack the eggs into the middle. Pour in about 50ml milk and 1 tbsp oil. Start whisking from the centre, gradually drawing the flour into the eggs, milk and oil. Once all the flour is incorporated, beat until you have a smooth, thick paste. Add a little more milk if it is too stiff to beat.
 
 Add a good splash of milk and whisk to loosen the thick batter. While still whisking, pour in a steady stream of the remaining milk. Continue pouring and whisking until you have a batter that is the consistency of slightly thick single cream.
